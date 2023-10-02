@@ -1,5 +1,5 @@
 👋 Olá, sou @japanakatani
-- 👀 Estou interessado estudar 
+- 👀 Estou interessado em  estudar 
 - 🌱 Atualmente estou aprendendo varios coisas novas
 - 💞️ Procuro colaborar em ajudar as pessoas 
 - 📫 Como entrar em contato comigo  pelo meu instagram 
